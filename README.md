@@ -28,10 +28,10 @@
 　*　*·✵*　°　　°　　　*°　　　°　　　　　　　*　　·　　　　*　　✸
 
 ## $\color{#D44E4E}{\text{About me!!}}$
-$\color{#F3F2FF}{\text{Win | 17 | Scorpio | INFP }}$
+$\color{#6256A8}{\text{Win | 17 | Scorpio | INFP }}$
 
 ## $\color{#C25642}{\text{FANDOMS!!}}$
-$\color{#F3F2FF}{\text{Danganronpa!}}$
+$\color{#6256A8}{\text{Danganronpa!}}$
 
 ## $\color{#D48B4C}{\text{IDK what else to put}}$
 
