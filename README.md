@@ -1,4 +1,4 @@
-<img width="2041" height="568" alt="ytbanner_new_crop" src="https://github.com/user-attachments/assets/07d51760-20df-4989-9ffe-da509511c817" />
+<img width="2041" height="568" alt="ytbanner_new_crop" src="https://github.com/user-attachments/assets/ed099abf-e761-41bc-ba90-8844a274e432" />
 
 ## $\color{#A675FF}{\text{Welcome???}}$
 
