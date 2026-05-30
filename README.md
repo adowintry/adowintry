@@ -1,6 +1,6 @@
 <img width="2041" height="568" alt="ytbanner_new_crop" src="https://github.com/user-attachments/assets/ed099abf-e761-41bc-ba90-8844a274e432" />
 
-## $\color{#A675FF}{\text{Welcome???}}$
+## $\color{#7B4BD1}{\text{Welcome???}}$
 
 
 ✧ °°° ✵ ✧ | [TUMBLR](https://www.tumblr.com/thatguyjen?source=share) |
@@ -27,11 +27,11 @@
 ✶　　　　　*　*　　··　•　☆°　　　　　　　　　　　　　　　　·　°·　　
 　*　*·✵*　°　　°　　　*°　　　°　　　　　　　*　　·　　　　*　　✸
 
-## $\color{#FC6D6D}{\text{About me!!}}$
+## $\color{#D44E4E}{\text{About me!!}}$
 $\color{#F3F2FF}{\text{Win | 17 | Scorpio | INFP }}$
 
-## $\color{#FC9277}{\text{FANDOMS!!}}$
+## $\color{#C25642}{\text{FANDOMS!!}}$
 $\color{#F3F2FF}{\text{Danganronpa!}}$
 
-## $\color{#FCB06D}{\text{IDK what else to put}}$
+## $\color{#D48B4C}{\text{IDK what else to put}}$
 
