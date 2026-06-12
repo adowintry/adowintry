@@ -18,7 +18,7 @@
 　　　　✷　　　　✦*　　✯.　☆°　　°　•　　　　　　•　°　　　··　　•
 ✷　　　　　　·　　　　　·　•　°　*　*　　☆　　　　✧　　　　　*　　　•
 　　　　　☄　　　　　°　*　　　　·*　　　　　　　　　　　　　.　　　　
-　　.✷　　　.　✶　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+　　.✷　　　.　✶　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀I like stars
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠠⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀　　*.　　✷　·　　✯　　　　✶　
 　　　　　　　✧　　•　　°　　　　★.✦☆✦　　☆　✵　　　　°　.　　　　　
 ·　　　　.°　　　　　　　　　　　·　°　　　　　ᯓᡣ𐭩　　　　*.　　　　•　
@@ -29,9 +29,11 @@
 
 ## $\color{#D44E4E}{\text{About me!!}}$
 ### $\color{#6256A8}{\text{Win | 17 | Scorpio | INFP }}$
+### $\color{#6256A8}{\text{Basically a mix of Leon Kuwata, Kaito Momota, and Kiyotaka Ishimaru}}$
 
 ## $\color{#C25642}{\text{FANDOMS!!}}$
 ### $\color{#6256A8}{\text{Danganronpa!}}$
+
 
 ## $\color{#D48B4C}{\text{IDK what else to put}}$
 
