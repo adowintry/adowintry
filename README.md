@@ -3,7 +3,7 @@
 ## $\color{#7B4BD1}{\text{Welcome???}}$
 
 
-✧ °°° ✵ ✧ | [TUMBLR](https://www.tumblr.com/thatguyjen?source=share) |
+✧ °°° ✵ ✧ | [TUMBLR](https://www.tumblr.com/thatguywin?source=share) |
 [YOUTUBE](https://www.youtube.com/channel/UCfZiOlTmd6of7JBQx-Jr-9g?sub_confirmation=1) |
 [2ND YOUTUBE](https://www.youtube.com/channel/UCESMuHnfeelbDHAb2JHyAiw?sub_confirmation=1) |
 [STRAWPAGE](https://adowinwin.straw.page/) |
@@ -28,10 +28,10 @@
 　*　*·✵*　°　　°　　　*°　　　°　　　　　　　*　　·　　　　*　　✸
 
 ## $\color{#D44E4E}{\text{About me!!}}$
-$\color{#6256A8}{\text{Win | 17 | Scorpio | INFP }}$
+### $\color{#6256A8}{\text{Win | 17 | Scorpio | INFP }}$
 
 ## $\color{#C25642}{\text{FANDOMS!!}}$
-$\color{#6256A8}{\text{Danganronpa!}}$
+### $\color{#6256A8}{\text{Danganronpa!}}$
 
 ## $\color{#D48B4C}{\text{IDK what else to put}}$
 
