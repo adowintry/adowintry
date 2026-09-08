@@ -41,11 +41,13 @@ $\color{#5B2B82}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
 
 <div align="left">
      
-$\color{#6256A8}{\text{✧ Win | 17 | Scorpio ఌ︎.˚☾⋆ | ENFP ✧ so864 | he/they usually }}$
+$\color{#6256A8}{\text{✧ Win | 17 | Scorpio ఌ︎.˚☾⋆ | ENFP ✧ so864}}$
 
-$\color{#5462A8}{\text{· Kaito Momota+Leon Kuwata+Kiyotaka Ishimaru kin}}$
+$\color{#5462A8}{\text{· HUGE Kaito Momota (DRV3) kin}}$
 
 $\color{#6256A8}{\text{· Artist and animator}}$
+
+$\color{#5462A8}{\text{· @adowintry on almost everything}}$
 
 </div>
 
