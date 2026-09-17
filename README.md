@@ -33,10 +33,6 @@ $\color{#5B2B82}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
  ## $\color{#b73a47}{\text{⛧°. ⋆༺ About me!! ༻⋆. °⛧}}$
 
 
-
-<img width="128" height="128" alt="kaito_pfp" src="https://github.com/user-attachments/assets/c62adcc5-afd1-4735-b5b7-0ea8be296504" />
-<img width="128" height="128" alt="kokichi_pfp" src="https://github.com/user-attachments/assets/71be5050-5174-493a-b02a-db7a7be358de" />
-
 </div>
 
 <div align="left">
