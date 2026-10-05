@@ -37,7 +37,7 @@ $\color{#5B2B82}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
 
 <div align="left">
      
-$\color{#6256A8}{\text{✧ Win | 17 | Scorpio ఌ︎.˚☾⋆ | ENFP ✧ so864}}$
+$\color{#6256A8}{\text{✧ Win | 17 | Scorpio ఌ︎.˚☾⋆ | ENFP ✧ so86■}}$
 
 $\color{#5462A8}{\text{· HUGE Kaito Momota (DRV3) kin}}$
 
