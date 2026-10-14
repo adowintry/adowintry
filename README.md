@@ -34,6 +34,8 @@ $\color{#6256A8}{\text{· Artist and animator}}$
 
 $\color{#5462A8}{\text{· @adowintry on almost everything}}$
 
+that typewriter gif thingy at the top thats mine ok i made that with my own bare hands CREDIT if u wanna use it (you very much can) or imonna bite ur head off
+
 </div>
 
 <div align="center">
