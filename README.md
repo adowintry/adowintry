@@ -2,12 +2,11 @@
 
 <img width="1250" height="625" alt="francis_sparkly4" src="https://github.com/user-attachments/assets/6fa28b82-487f-4ef1-933f-d35a06cbadbb" />
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Spectral&pause=500&color=C72A45&center=true&vCenter=true&width=435&lines=Welcome+to+Win's+lair+++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Make+yourselves+at+home%2C+my+friends+!++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Im+so+fucking+tired+lmao++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7)](https://git.io/typing-svg)
+
 <p align="center"> 
 <img width="64" height="64" alt="type" src="https://github.com/user-attachments/assets/a1f8d561-3b5c-4a40-b74f-adc5af59286f" /> 
 </p>
-
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Spectral&pause=500&color=C72A45&center=true&vCenter=true&width=435&lines=Welcome+to+Win's+lair+++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Make+yourselves+at+home%2C+my+friends+!++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Im+so+fucking+tired+lmao++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7)](https://git.io/typing-svg)
 
 [![Discord](https://img.shields.io/badge/Discord-adowintry-6E1626?style=for-the-badge&logo=discord&logoColor=d7894f&labelColor=470B12)](https://discord.com/users/adowintry)
 
