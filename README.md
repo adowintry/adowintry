@@ -9,23 +9,12 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Spectral&pause=500&color=C72A45&center=true&vCenter=true&width=435&lines=Welcome+to+Win's+lair+++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Make+yourselves+at+home%2C+my+friends+!++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Im+so+fucking+tired+lmao++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7)](https://git.io/typing-svg)
 
-$\color{#5B2B82}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
-
 [![Discord](https://img.shields.io/badge/Discord-adowintry-6E1626?style=for-the-badge&logo=discord&logoColor=d7894f&labelColor=470B12)](https://discord.com/users/adowintry)
 
 ⊹₊˚‧︵‿₊ | [TUMBLR](https://www.tumblr.com/thatguywin?source=share) | [YOUTUBE](https://www.youtube.com/channel/UCfZiOlTmd6of7JBQx-Jr-9g?sub_confirmation=1) | [2ND YOUTUBE](https://www.youtube.com/channel/UCESMuHnfeelbDHAb2JHyAiw?sub_confirmation=1) | [STRAWPAGE](https://adowinwin.straw.page/) | [TIKTOK](https://www.tiktok.com/@adowintry?is_from_webapp=1&sender_device=pc) | [INSTAGRAM](https://www.instagram.com/adowintry?igsh=MTdvMTk1N3E1Z2w2Yg==) |₊‿︵‧˚₊⊹
 
-　*　　　　　　　•　　　•　*°.　　　　　　*　　°　　　　　　　*　　.　
-✧　.　°.✷　　　　　•　**·✸　　　•✶　　　　　°*°　°　　　.　　　
-.　　　　　　*　·　　✯　　✯　✶　　　　　*　　.　　*　.　　　✦　.　　
-　　　　　　　✶　　　　　ᯓᡣ𐭩　.　　　　✦·°·　　　☄　　✦　　　　　　°
-　　•°•　_I like stars_　　　　　　*..　　　.　　·　　°✸　　　　　　
-  ✯.　☆°　　°　•　　　　　　•　°　　　··　　•
-✷　　　　　　·　　　　　·　•　°　*　*　　☆　　　　✧　　　　　*　　　•
-　　　　　☄　　　　　°　*　　　　·*　　　　　　　　　　　　　.　　　　
-　　.✷　　　.　✶　⠀⠀⠀⠀⠀⠀⠀°　⠀⠀⠀•✶
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠠⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀　　*.　　✷　·　　✯　　　　✶　
-　　　　　　　✧　　•　　°　　　
+<img width="1280" height="430" alt="Untitled396_20261014010355" src="https://github.com/user-attachments/assets/4e473058-ba07-403c-bdd6-9cf009d0846b" />
+
 </div>
 
 <div align="center">
@@ -48,6 +37,10 @@ $\color{#5462A8}{\text{· @adowintry on almost everything}}$
 </div>
 
 <div align="center">
+
+<img width="736" height="207" alt="2cb41e3a0b090dca7f16eb72eb03a8de" src="https://github.com/user-attachments/assets/debab959-fb58-40a2-b269-bf89bb569bd5" />
+<img width="735" height="75" alt="f0efb3c8c187fb5fae4a24e50a7954dc" src="https://github.com/user-attachments/assets/f8fdb127-e398-46ef-81d8-7d1da3153379" />
+
 
 ## $\color{#b73a47}{\text{DNI}}$
 
@@ -72,13 +65,5 @@ $\color{#5462A8}{\text{· @adowintry on almost everything}}$
 
 <div align="center">
 
-## $\color{#C25642}{\text{⛧°. ⋆༺ COMMISSIONS !! ༻⋆. °⛧}}$
-<img width="1080" height="1440" alt="1" src="https://github.com/user-attachments/assets/189c53bc-c0f4-4284-a25a-56bb999edbeb" />
-<img width="1080" height="1440" alt="2" src="https://github.com/user-attachments/assets/3c797a06-3cec-4988-9101-1f52a78edeed" />
-<img width="1080" height="1440" alt="3" src="https://github.com/user-attachments/assets/27c9416b-12d9-404f-b57c-0576f4f7a194" />
-<img width="1080" height="1440" alt="4" src="https://github.com/user-attachments/assets/f8dd3fcd-0b92-4e0f-a10d-3cb3387f736b" />
-<img width="1080" height="1440" alt="5" src="https://github.com/user-attachments/assets/52893360-4d81-4a2f-833e-bacb2c3eb7f5" />
-
-## $\color{#D48B4C}{\text{⛧°. ⋆༺ Placeholder ༻⋆. °⛧}}$
-
-### $\color{#6256A8}{\text{✧ Lalallala}}$
+<img width="732" height="136" alt="f362b6f4c9114b9ee8f90bc5c3700121" src="https://github.com/user-attachments/assets/4306006f-74b0-4b91-adc0-1afd376ec8f0" />
+<img width="616" height="371" alt="Untitled396_20261014010636" src="https://github.com/user-attachments/assets/0614055e-909b-46f2-a371-f3b5c57504c4" />
