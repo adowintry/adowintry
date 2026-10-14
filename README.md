@@ -66,4 +66,4 @@ $\color{#5462A8}{\text{· @adowintry on almost everything}}$
 <div align="center">
 
 <img width="732" height="136" alt="f362b6f4c9114b9ee8f90bc5c3700121" src="https://github.com/user-attachments/assets/4306006f-74b0-4b91-adc0-1afd376ec8f0" />
-<img width="616" height="371" alt="Untitled396_20261014010636" src="https://github.com/user-attachments/assets/0614055e-909b-46f2-a371-f3b5c57504c4" />
+<img width="500" height="465" alt="download (37)" src="https://github.com/user-attachments/assets/a1ec568c-1261-4e52-aec5-f143e37da684" />
