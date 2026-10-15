@@ -12,7 +12,9 @@
 
 ⊹₊˚‧︵‿₊ | [TUMBLR](https://www.tumblr.com/thatguywin?source=share) | [YOUTUBE](https://www.youtube.com/channel/UCfZiOlTmd6of7JBQx-Jr-9g?sub_confirmation=1) | [2ND YOUTUBE](https://www.youtube.com/channel/UCESMuHnfeelbDHAb2JHyAiw?sub_confirmation=1) | [STRAWPAGE](https://adowinwin.straw.page/) | [TIKTOK](https://www.tiktok.com/@adowintry?is_from_webapp=1&sender_device=pc) | [INSTAGRAM](https://www.instagram.com/adowintry?igsh=MTdvMTk1N3E1Z2w2Yg==) |₊‿︵‧˚₊⊹
 
-<img width="1280" height="430" alt="Untitled396_20261014010355" src="https://github.com/user-attachments/assets/4e473058-ba07-403c-bdd6-9cf009d0846b" />
+<img width="1248" height="395" alt="1000153968" src="https://github.com/user-attachments/assets/f557c44b-8d5f-4425-9300-6a84aba7a7c8" />
+
+
 
 </div>
 
