@@ -10,7 +10,7 @@
 
 [![Discord](https://img.shields.io/badge/Discord-adowintry-6E1626?style=for-the-badge&logo=discord&logoColor=d7894f&labelColor=470B12)](https://discord.com/users/adowintry)
 
-⊹₊˚‧︵‿₊ | [TUMBLR](https://www.tumblr.com/thatguywin?source=share) | [YOUTUBE](https://www.youtube.com/channel/UCfZiOlTmd6of7JBQx-Jr-9g?sub_confirmation=1) | [2ND YOUTUBE](https://www.youtube.com/channel/UCESMuHnfeelbDHAb2JHyAiw?sub_confirmation=1) | [STRAWPAGE](https://adowinwin.straw.page/) | [TIKTOK](https://www.tiktok.com/@adowintry?is_from_webapp=1&sender_device=pc) | [INSTAGRAM](https://www.instagram.com/adowintry?igsh=MTdvMTk1N3E1Z2w2Yg==) |₊‿︵‧˚₊⊹
+$\color{#b73a47}{\text {⊹₊˚‧︵‿₊}}$ | [TUMBLR](https://www.tumblr.com/thatguywin?source=share) | [YOUTUBE](https://www.youtube.com/channel/UCfZiOlTmd6of7JBQx-Jr-9g?sub_confirmation=1) | [2ND YOUTUBE](https://www.youtube.com/channel/UCESMuHnfeelbDHAb2JHyAiw?sub_confirmation=1) | [STRAWPAGE](https://adowinwin.straw.page/) | [TIKTOK](https://www.tiktok.com/@adowintry?is_from_webapp=1&sender_device=pc) | [INSTAGRAM](https://www.instagram.com/adowintry?igsh=MTdvMTk1N3E1Z2w2Yg==) |$\color{#b37a47}{\text{₊‿︵‧˚₊⊹}}$
 
 <img width="1248" height="395" alt="1000153968" src="https://github.com/user-attachments/assets/f557c44b-8d5f-4425-9300-6a84aba7a7c8" />
 
